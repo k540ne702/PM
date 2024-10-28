@@ -1,0 +1,6 @@
+# [ИСРПО](https://disk.yandex.ru/d/WtWPIinw1WMJzw)
+# [Мдк.04.01](https://disk.yandex.ru/d/ndxVbDYSEMGSow)
+# [Мдк.04.02](https://disk.yandex.ru/d/osDqZvr2SLwhtw)
+# [ПП.04](https://disk.yandex.ru/d/JKmATwDdbMTA-w)
+# [УП.02](https://disk.yandex.ru/d/1gG7uVYXsIg4Zg)
+# [УП.04](https://disk.yandex.ru/d/qtnkgFj5WMS_8g)
